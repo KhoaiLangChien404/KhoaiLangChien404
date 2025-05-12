@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔥 I am a 3rd year computer science student at Ton Duc Thang University<br>🤝 I am open to any collaboration work<br>🔭 Looking for intern and freshman position <br>📧 How to reach me: leductrung2021123@email.com
+🔥 I am a computer science junior at Ton Duc Thang University<br>🤝 I am open to any collaboration work<br>🔭 Looking for intern and freshman position <br>📧 How to reach me: leductrung2021123@email.com
 
 
 ## 🌐 Socials:
